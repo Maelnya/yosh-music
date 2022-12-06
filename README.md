@@ -1,0 +1,2 @@
+# yosh-music
+Private skuyy
